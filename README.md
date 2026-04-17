@@ -1,0 +1,2 @@
+# aidar120group
+tgyjjhghjgqwertyuiop[asdfghjklzxcvbnm
